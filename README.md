@@ -6,6 +6,6 @@
                            
                           🎉 \  15 Anos
 
-                            🪁 \ Objetivo - Aprender Back-End. 
+                            🪁 \ Objetivo 2023 - Finalizar alguma linguagem. 
                             
                               💻 \ Estudando Back-End
