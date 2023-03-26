@@ -4,8 +4,8 @@
 
                         🎓 \  Estudande (Ensino Médio)
                            
-                          🎉 \  15 Anos
+                          🎉 \  156 Anos
 
-                            🪁 \ Objetivo 2023 - Finalizar alguma linguagem. 
+                            🪁 \ Objetivo 2023 - Ser um desenvolvedor. 
                             
-                              💻 \ Estudando Back-End
+                              💻 \ Estudando Front-End
