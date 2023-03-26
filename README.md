@@ -4,7 +4,7 @@
 
                         🎓 \  Estudande (Ensino Médio)
                            
-                          🎉 \  156 Anos
+                          🎉 \  16 Anos
 
                             🪁 \ Objetivo 2023 - Ser um desenvolvedor. 
                             
